@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on creative and digital projects, knowledge sharing platforms, and potential business ideas!
 - 📫 How to reach me ...
   📩 Email: emanochristine@gmail.com
-  💼 LinkedIn: linkedin.com/in/christineemano
+  💼 LinkedIn: [linkedin.com/in/christineemano](https://www.linkedin.com/in/christineemano/)
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I love karaoke, anime, and strength training—so I can lift both spirits and dumbbells! 🎤💪✨
 
