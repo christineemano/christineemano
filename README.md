@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @christineemano
-  | Business Owner | Project Manager | Creative Producer
 - 👀 I’m interested in events, videos, project management, UX Design, and helping the community!
 - 🌱 I’m currently learning MBA in project management, also taking UI/UX Design courses, and CS Fundamentals!
 - 💞️ I’m looking to collaborate on creative and digital projects, knowledge sharing platforms, and potential business ideas!
