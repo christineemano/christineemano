@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @christineemano
-- 👀 I’m interested in events, videos, project management, UX Design, and helping the community! I also do informational designs and copywriting!
+- 👀 I’m interested in events, videos, project management, UX Design, and helping the community!
+- 👀 I also do informational designs, social media management, and copywriting!
 - 🌱 I’m currently learning MBA in project management, UI/UX Design, and CS Fundamentals!
 - 💞️ I’m looking to collaborate on creative and digital projects, knowledge sharing platforms, and potential business ideas!
 - 📫 How to reach me ...
