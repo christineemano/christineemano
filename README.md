@@ -6,7 +6,7 @@
   📩 Email: emanochristine@gmail.com
   💼 LinkedIn: [linkedin.com/in/christineemano](https://www.linkedin.com/in/christineemano/)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love singing, going to concerts or raves, anime, rpg, and strength training— I lift both my spirit and dumbbells! 🎤💪✨
+- ⚡ Fun fact: I love singing, going to concerts or raves, anime, rpg, running, gym! I'm pretty active!
 
 <!---
 christineemano/christineemano is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
